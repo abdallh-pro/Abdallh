@@ -1,2 +1,2 @@
 # Abdallh
-i'm student , I try to be batter in Develompent Web
+i'm student , I try to be better in Develompent Web
